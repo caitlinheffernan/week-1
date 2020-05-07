@@ -1,5 +1,5 @@
 # Journal
-A rundown of my experience this week, divided up by sections on the instructions page.
+A rundown of my experience this week, divided up according to the sections on the instructions page.
 ## Listen
 I will be honest. I'm not a fan of podcasts. I find it very easy to zone-out without a visual component. Even if I have no distractions around me there's always my own head. But I got through it after a few rewinds.
 ## Read
